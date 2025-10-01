@@ -68,4 +68,5 @@ CPay est une plateforme technologiquement mature, prête à être déployée. No
 ### Contact
 
 **Christian EBOMA**
-**christian.eboma2022@gmai.com**
+Whatsapp : **+243 98 32 25 070**
+**email: christian.eboma2022@gmai.com**
